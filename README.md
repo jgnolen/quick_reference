@@ -1,0 +1,29 @@
+# quick_reference
+a list of quick reference resources
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
